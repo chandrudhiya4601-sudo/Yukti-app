@@ -1,1 +1,0 @@
-# Yukti-app
